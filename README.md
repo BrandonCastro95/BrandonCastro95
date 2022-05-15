@@ -1,0 +1,11 @@
+- 👋 Hi, I’m @BrandonCastro95 I´m living in Monterrey, Mexico
+- I´m 26 y old and I´m so excited to enter on the programation world because 
+- I really enjoy when I´m making a new programation file.
+- 
+- 👀 I’m interested in marketing and programation stuff, it´s my passion.
+- 
+- 🌱 I’m currently learning some html because i´m beginer.
+- 
+- 📫 How to reach me:
+- https://www.facebook.com/brandon.castro.311056
+- https://www.linkedin.com/in/brandon-castro-4260a4213/
